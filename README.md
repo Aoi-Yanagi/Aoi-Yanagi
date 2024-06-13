@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **aviofficial10@gmail.com**
 
-- ⚡ Fun fact **I am very Lazy but still get things done on Time.**
+- ⚡ Fun fact **I am very Lazy(Just kidding) but still get things done on Time.(SO TRUE!)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
